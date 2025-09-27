@@ -1,1 +1,0 @@
-# zynkss.github.io
